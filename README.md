@@ -1,0 +1,1 @@
+# McDonald-s-Franchise-vs-Rental-Property-A-Comparative-Investment-Analysis-Using-DCF-and-IRR
